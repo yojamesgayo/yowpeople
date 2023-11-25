@@ -1,3 +1,0 @@
-# yowpeople
-
-yoyo
